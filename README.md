@@ -17,3 +17,6 @@
 ![](https://komarev.com/ghpvc/?username=FeralFlesh&color=blueviolet)
 
 dawg so low 😭✌
+
+
+![17682210703214999427409698556991](https://github.com/user-attachments/assets/67d59607-e74b-4c03-b94b-5e1aefd370cb)
