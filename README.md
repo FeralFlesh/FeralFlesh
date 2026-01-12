@@ -14,6 +14,9 @@
 
 ![17681429993613376190493461072085](https://github.com/user-attachments/assets/912f61fd-dddc-45a7-a497-a9c13264c67f) 
 
+<img width="500" height="500" alt="17682213825421892969143985726233" src="https://github.com/user-attachments/assets/a9424541-04d1-4237-978d-d1e08c4866db" />
+
+
 ![](https://komarev.com/ghpvc/?username=FeralFlesh&color=blueviolet)
 
 dawg so low 😭✌
