@@ -2,6 +2,8 @@
  
  ˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖ .  photos of a fag ♡
 
+⋆˚𝜗𝜚˚⋆  . -  [prns.cc](https://pronouns.cc/@Riozzr)
+
 ![copyImage](https://github.com/user-attachments/assets/8cfe90e2-4fa5-46be-85da-5289ada59298)
 
 𓇬⋆ ﾟ꩜‧˚𑁍ܓ
