@@ -3,18 +3,19 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=FeralFlesh&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=FeralFlesh&color=4D8381)
 
 
  
-  ˗ˋˏ ♡ ˎˊ˗ hello  ! 
+  ˗ˋˏ ♡ ˎˊ˗ .  𝘩𝘦𝘭𝘭𝘰 ! 
 
 ⋆˚𝜗𝜚˚⋆  . -  [prns.cc](https://pronouns.cc/@Riozzr)
 
 
+<img width="2048" height="2048" alt="17757361619571900087291642970588" src="https://github.com/user-attachments/assets/f2d8de94-2bcf-4099-99c7-bf5757376d2a" />
 
 
-
+giovanni my beloved
 
 
 
