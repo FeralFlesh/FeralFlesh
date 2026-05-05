@@ -11,7 +11,7 @@ ___________
  
   ᶻ 𝘇 𐰁 °  . hi
   
-  ✦ . Rio / Seth / Selfridge
+  ✦ . Rio / Seth / Selfridge , I go by vion and syaz too but I don't use it that much
   
   ✦ . pronouns : he / she / it
 
