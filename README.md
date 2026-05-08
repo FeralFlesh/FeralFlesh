@@ -38,9 +38,11 @@ giovanni my beloved
 
 
 
-<img width="720" height="712" alt="17779893535553209765309171089572" src="https://github.com/user-attachments/assets/ce3cb6cb-0166-4d43-86da-20e7da6ab52f" />
+<img width="640" height="360" alt="copyImage" src="https://github.com/user-attachments/assets/0b128f49-fa42-40cf-ad12-e767d0cc5ef5" />
 
-what the fuck did I found on tumblr 😂
+
+aw my baby
+
 
 
 
