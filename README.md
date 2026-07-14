@@ -16,7 +16,7 @@ ___________
   ✦ . pronouns : he / she / it
 
   ✦ . I'm a soft sharing status           yumeshipper ^_^ I'm also a fictionkin
-to parker ❤️‍🩹
+to parker selfridge and seth davis❤️‍🩹
 
 ✦ . I draw traditional mostly
 
