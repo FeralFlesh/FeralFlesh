@@ -15,12 +15,12 @@ ___________
   
   ✦ . pronouns : he / she / it
 
-  ✦ . I'm a idk type of sharing status           yumeshipper ^_^ I'm also a fictionkin
+  ✦ . I'm a soft sharing status           yumeshipper ^_^ I'm also a fictionkin
 to parker ❤️‍🩹
 
 ✦ . I draw traditional mostly
 
-  ✦ . main f/os ♡: parker selfridge  , martin krebs  , seth davis and kip raines ❤️‍🩹
+  ✦ . main f/os ♡: parker selfridge  , martin krebs  , seth davis and kip raines ❤️‍🩹 plus tim briggs from contraband 👀
 
 🪽° . severe memory loss and problems
 
