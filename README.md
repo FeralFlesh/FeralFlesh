@@ -45,6 +45,10 @@ aw my baby
 
 
 
+<img width="720" height="158" alt="copyImage" src="https://github.com/user-attachments/assets/2692dbde-1897-45d3-870b-9d5950479335" />
+
+THANK U THANK UHTNAK YOU [pt-hall-of-media](https://github.com/pt-hall-of-media) 
+
 
 
    ![17682210703214999427409698556991](https://github.com/user-attachments/assets/67d59607-e74b-4c03-b94b-5e1aefd370cb)
