@@ -20,9 +20,10 @@ to parker selfridge and seth davis❤️‍🩹
 
 ✦ . I draw traditional mostly
 
-  ✦ . main f/os ♡: parker selfridge  , martin krebs  , seth davis and kip raines ❤️‍🩹 plus tim briggs from contraband 👀
+  ✦ . main f/os ♡: 𝙥𝙖𝙧𝙠𝙚𝙧 𝙨𝙚𝙡𝙛𝙧𝙞𝙙𝙜𝙚  , martin krebs  , seth davis and kip raines ❤️‍🩹 plus tim briggs from contraband AND 𝙢𝙖𝙧𝙞𝙪𝙨 𝙟𝙤𝙨𝙞𝙥𝙤𝙫𝙞𝙘 from sneaky pete 🥺👀
 
-🪽° . severe memory loss and problems
+
+🪽° . severe memory loss and mentally unstable
 
 check my pronouns cc for more giys heh
 
