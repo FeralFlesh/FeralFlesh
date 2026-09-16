@@ -1,6 +1,8 @@
 <img width="1280" height="295" alt="copyImage" src="https://github.com/user-attachments/assets/405fb948-08da-41c5-8077-dd682cadaa65" />
 
 ___________
+<img width="1394" height="824" alt="image" src="https://github.com/user-attachments/assets/3bf30c7d-3822-4937-ac42-834a063aa463" />
+
 
 <img width="1000" height="563" alt="copyImage" src="https://github.com/user-attachments/assets/cd78b658-93ef-4575-9824-e662e04283eb" />
 
@@ -9,7 +11,7 @@ ___________
 
 
  
-  ᶻ 𝘇 𐰁 °  . hi
+  ᶻ 𝘇 𐰁 °  . hi also art up there by me ou shi bro
   
   ✦ . Rio / Seth / Selfridge , I go by vion and syaz too but I don't use it that much
   
@@ -57,3 +59,5 @@ THANK U SOO MUCH [YUME-TOWN](https://github.com/ponytownyumeshippers)
 
 
    ![17682210703214999427409698556991](https://github.com/user-attachments/assets/67d59607-e74b-4c03-b94b-5e1aefd370cb)
+
+ts so MESSY bro, i AINT remakin this
